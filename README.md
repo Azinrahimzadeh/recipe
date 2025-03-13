@@ -6,8 +6,8 @@ Make chuck roast in the oven with this easy recipe for pot roast that's the best
 
 Notes to remember: 
 
-1. Serve with oven-roasted vegetables, potatoes, carrots, onions, or your favorite side dish.
-2. It's best to make this dish a day ahead.
+1. Serve with oven-roasted **vegetables, potatoes, carrots, onions, or your favorite side dish**.
+2. It's best to make this dish **a day** ahead.
 
 URL: https://www.allrecipes.com/recipe/14621/beef-pot-roast/
 
